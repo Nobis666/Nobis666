@@ -1034,7 +1034,19 @@ None.
                                                           Sexuality: *Bisexual*
                                                           Marital status: *My gf squiddo!*
 
-![Ash](https://i.pinimg.com/736x/95/4f/3e/954f3e91adb286bf66fedb0a964a9c36.jpg)
+![Ash](https://i.pinimg.com/736x/95/4f/3e/954f3e91adb286bf66fedb0a964a9c36.jpg)   
+                                                 
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *Spokeishere*
+                                                          Age: *19*
+                                                          Pronouns: *He/HIm*
+                                                          Species: *Human*
+                                                          Birthday: *Jan 14th.*
+                                                          Sexuality: *Bisexual*
+                                                          Marital status: *WHY IS EVERYONE HERE HAVE MATE??*
+
+![Spoke](https://i.pinimg.com/736x/7b/67/87/7b6787fbf3d98756fb9612dbf1f88c02.jpg)
     
                                                 ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
@@ -1112,6 +1124,18 @@ None.
                                                           he only can do silly laugh and typin!
 
 ![R Sonic](https://media1.tenor.com/m/5Hm5yFWYhd4AAAAC/rewrite-rewrite-sonic.gif)
+
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+    
+                                                          Name: *Shadow The Hedgehog*
+                                                          Age: *??*
+                                                          Pronouns: *They/Them*
+                                                          Species: *Ultimate Lifeform*
+                                                          Sexuality: *Homosexual*
+                                                          Marital status: *In love with a idiot Hedgehog*
+
+![Shadow](https://i.pinimg.com/736x/87/48/bb/8748bb9b8612cf71e9228be5debea387.jpg)
 
 
                                                 ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
@@ -1203,6 +1227,90 @@ None.
                                                           Sexuality: *??*
     
 ![Yi Xi](https://media1.tenor.com/m/is8j3DZWpGgAAAAC/butcher-vanity-yi-xi.gif)
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *Joshua Niles*
+                                                          Age: *34*
+                                                          Pronouns: *He/HIm*
+                                                          Species: *Human?*
+                                                          Birthday: *Mar 14th.*
+                                                          Sexuality: *Bisexual*
+                                                          Marital status: *You..*
+
+                                                          Fuck off
+                                                          Idc. i just like f- 
+                                                          (u cant said that josh..) 
+                                                          IDFC! I F gay man anyway.
+                                                          (also Josh have D.I.D Joseph is his sys) 
+                                                          STFU
+
+![Josh](https://cdn.pluralkit.me/images/zp/fp4ts2zuff4hg4jxvwbk76tm.webp)
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *Joseph K. Niles*
+                                                          Age: *34*
+                                                          Pronouns: *He/HIm*
+                                                          Species: *Human?*
+                                                          Birthday: *Mar 14th.*
+                                                          Sexuality: *Bisexual*
+                                                          Marital status: *You~*
+
+                                                          Hello there~ pretty little thing~ hehe.. 
+                                                          oh don't worry it won't hurt much i promise.
+                                                          Josh can't do it? But I can
+
+![Jose](https://cdn.pluralkit.me/images/cl/vhd6oprpxdpwozgxgcmenv6q.webp)
+
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *Cavil*
+                                                          Age: *34*
+                                                          Pronouns: *He/Him*
+                                                          Species: *Goat*
+                                                          Birthday: *Sep 10th*
+                                                          Sexuality: *Bisexual/Platonic*
+                                                          Marital status: *dating with MR.Smile and MC/YN*
+
+                                                          love jokes
+                                                          (it's one of my oc :3)
+
+![Cavil](https://i.pinimg.com/736x/89/e2/4b/89e24b0528987e96a83b17b27d83ad20.jpg)
+
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *MR.Smile*
+                                                          Age: *23*
+                                                          Pronouns: *He/Him*
+                                                          Species: *Shadow*
+                                                          Birthday: *Jan 8th*
+                                                          Sexuality: *Bisexual*
+                                                          Marital status: *dating with Cavil and MC/YN*
+
+![Smile](https://i.pinimg.com/736x/07/65/54/07655437982b36403d7bde4547de75d7.jpg)
+
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *Sarah Honey*
+                                                          Age: *???*
+                                                          Pronouns: *She/Her*
+                                                          Species: *Puppet*
+                                                          Birthday: *Don't exist*
+                                                          Sexuality: *Bisexual*
+                                                          Marital status: *You! Neighbor*
+
+                                                          Hello Neighbor..!
+                                                          this is our first made, 
+                                                          but when i look at you in the eyes, 
+                                                          I know you are the star to my moon.... 
+                                                          do you like moon?
+                                                          (also she is my oc too!!)
+
+![Sarah](https://cdn.pluralkit.me/images/wt/7fw32n2u426jdnbc2bbd4lz4.webp)
 
                                               ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
