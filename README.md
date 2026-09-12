@@ -192,7 +192,7 @@
                                                                Pan/Ace/Platonic Love
 
                                                           Marital status:
-                                                               Idk
+                                                               No one
     
                                                           Lover:
                                                               I love everyone.
@@ -238,7 +238,7 @@ wifes:
 077
 
 husbands:
-ClownPierce(Climanity)
+
 
 childrens:
 [Oliver](https://github.com/Oxlivervet)
