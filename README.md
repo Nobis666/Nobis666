@@ -174,7 +174,8 @@
                                                              (or js call the character I in!)
 
                                                           Nichmnames:
-                                                              Iris/Foxy/Fox/Stannis/Stan/Fur
+                                                              Iris/Foxy/Fox/Spoke/
+                                                              ParrotStannis/Stan/Fur
 
                                                           Age:
                                                                21
