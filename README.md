@@ -605,12 +605,13 @@ he also dislike water. love touch fire.)
                                                            Allow:
       
                                                               - free hug
-                                                              - ships (Just don't make it weird bro)
                                                               - adding
  
                                                            **DONT** Allow:
 
                                                               - Dramas
+                                                              - ships
+                                                              - anything about the director
                                                               - adding
 
     
