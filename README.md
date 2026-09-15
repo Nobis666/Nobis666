@@ -1049,6 +1049,16 @@ None.
                                                           Marital status: *WHY IS EVERYONE HERE HAVE MATE??*
 
 ![Spoke](https://i.pinimg.com/736x/7b/67/87/7b6787fbf3d98756fb9612dbf1f88c02.jpg)
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *Spokeishere - Kid*
+                                                          Age: *10*
+                                                          Pronouns: *He/HIm*
+                                                          Species: *Bug*
+                                                          Birthday: *Jan 14th.*
+
+![Younger Spoke](https://cdn.pluralkit.me/images/xi/5a2b4prxu6ahblytylbtvxqq.webp)
     
                                                 ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
